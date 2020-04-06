@@ -128,7 +128,197 @@ Leo's character shows some depth here as he vacillates between acknowledging, ev
 
 This epistemology of the theatre is interesting. Leo seems to be building an epistemology based on narrative. The stories we create, are the closest thing to truth that we have. Shakespeare's works are so important to us because they approach the truth so closely. Leo's journey, then, becomes that of a truthseeker. Acting, the theatre, as a transcendence towards universal truths.
 
+### lawrence's notes
 
+
+
+> All my weight, the weight which scales measure, and the weight no scale can measure, seemed pulling downward against that hand.
+
+
+So mystic
+
+---
+
+> One of his fingers, or each one of them, seemed bigger to me than my penis. I was only beginning to be terrified of this imperious bit of flesh, which was only at the beginning of its long career of blackmail.
+
+
+Preach
+
+
+
+---
+
+> I remembered my mother’s insistence that I always wear clean underwear because I might get knocked down by a car on the way to or from school and I and the family would be disgraced even beyond the grave, presumably, if my underwear was dirty. And I began to worry, in fact, as the doctor sniffed and prodded, about the state of the shorts I was wearing. This made me want to laugh. But I could not breathe.
+
+Same mom story. What a way set up the ennd of this paragraph tho
+
+---
+
+> The day comes when he recognizes what a combination of helplessness and hard-hearted calculation go into the creation of a role, and to what extent authority is a delicate, difficult, deadly game of chance.
+
+
+Great case for self determination
+
+---
+
+
+
+> He laughed with all his body, perhaps touching his shoulder against yours, or putting his head on your chest for a moment, and then careening off you, halfway across the room, or down the block.
+
+
+So black
+
+
+--- 
+
+> At that moment the train came into the station and after several hours it rolled to a stop.
+
+Gold 
+
+--- 
+
+
+> I know that, as I grew older, I became tyrannical. I had no choice, my life was in the balance. Whoever went under, it was not going to be me—and I seem to have been very clear about this from the very beginning of my life. To run meant to turn my back—on lions; to run meant the flying tackle which would bring me down; and, anyway, run where? Certainly not to my father and mother, certainly not to Caleb. Therefore, I had to stand. To stand meant that I had to be insane. People who imagine themselves to be, as they put it, in their “right” minds, have no desire to tangle with the insane. They stay far from them, or they ingratiate them. It took me almost no time to realize this. I used what I knew. I knew that what was sport for others was life or death for me. Therefore, I had to make it a matter of life or death for them. Not many are prepared to go so far, at least not without the sanction of a uniform. But this absolutely single-minded and terrified ruthlessness was masked by my obvious vulnerability, my paradoxical and very real helplessness, and it covered my terrible need to lie down, to breathe deep, to weep long and loud, to be held in human arms, almost any human arms, to hide my face in any human breast, to tell it all, to let it out, to be brought into the world, and, out of human affection, to be born again.
+
+Toxic Masculinity Defined
+
+---
+
+
+
+---
+
+> Then it occurred to me that he might be in the same trouble as myself, since if I couldn’t go home without him, he, even more surely, couldn’t go home without me. Perhaps he was also wandering around in the rain. If he was, then, I thought, it served him right; it would serve him right if he caught pneumonia and died; and I dwelt pleasantly on this possibility for the length of the block. But at the end of the block I realized that he was probably not wandering around in the rain—I was; and I, too, might catch pneumonia and die.
+
+What a mystic
+
+---
+
+> Then I was aware of another sound, I had been hearing it for awhile without realizing it. This was a moaning sound, a sighing sound, a sound of strangling, which mingled with the sound of the rain and with a muttering, cursing, human voice. The sounds came from the door which led to the backyard. I wanted to stand, but I crouched lower; wanted to run, but could not move. Sometimes the sounds seemed to come closer and I knew that this meant my death; sometimes diminished or ceased altogether and then I knew that my assailant was looking for me. Oh, how I hated Caleb for bringing my life to an end so soon! How I wished I knew where to find him! I looked toward the backyard door and I seemed to see, silhouetted against the driving rain, a figure, half bent, moaning, leaning against the wall, in indescribable torment; then there seemed to be two figures, sighing and grappling, moving so quickly that it was impossible to tell which was which—if this had been a movie, and I had been holding a gun, I would have been afraid to shoot, for fear of shooting the wrong person; two creatures, each in a dreadful, absolute, silent single-mindedness, attempting to strangle the other! I watched, crouching low. A very powerful and curious excitement mingled itself with my terror and made the terror greater. I could not move. I did not dare to move. The figures were quieter now. It seemed to me that one of them was a woman and she seemed to be crying—pleading for her life. But her sobbing was answered only by a growling sound. The muttered, joyous curses began again, the murderous ferocity began again, more bitterly than ever, and I trembled with fear and joy. The sobbing began to rise in pitch, like a song. The movement sounded like so many dull blows. Then everything was still, all movements ceased—my ears trembled. Then the blows began again and the cursing became a growling, moaning, stretched-out sigh. Then I heard only the rain and the scurrying of the rats. It was over—one of them, or both of them, lay stretched out, dead or dying, in this filthy place. It happened in Harlem every Saturday night. I could not catch my breath to scream. Then I heard a laugh, a low, happy, wicked laugh, and the figure turned in my direction and seemed to start toward me.
+
+
+What a wild sex scene
+
+---
+
+> We reached the door, which had a metal pole built into it in such a way as to prevent its being opened from the outside, and a heavy piece of chain around the top of the three locks.
+
+Such security. much wow.
+
+---
+
+> no, the building was not very clean.
+
+
+2nd note. Point taken. But why?
+
+---
+
+> I wished that I were God. And then I hated God.
+
+!
+
+---
+
+
+
+> “Caleb,” I asked, “are white people people?” “What are you talking about, Leo?” “I mean—are white people—people? People like us?” He looked down at me. His face was very strange and sad. It was a face I had never seen before. We climbed a few more stairs, very slowly. Then, “All I can tell you, Leo, is—well, they don’t think they are.”
+
+
+WOowow
+
+---
+
+> “We got stopped by the cops,” I said. Then I could not continue. I looked helplessly at Caleb and Caleb told the story. As Caleb spoke, I watched my father’s face. I don’t know how to describe what I saw. I felt the one arm he had around me tighten, tighten; his lips became bitter and his eyes grew dull. It was as though, after indescribable, nearly mortal effort, after grim years of fasting and prayer, after the loss of all he had, and after having been promised by the Almighty that he had paid the price and no more would be demanded of his soul, which was harbored now; it was as though in the midst of his joyful feasting and dancing, crowned and robed, a messenger arrived to tell him that a great error had been made, and that it was all to be done again. Before his eyes, then, the banquet and the banquet wines and the banquet guests departed, the robe and crown were lifted, and he was alone then, frozen out of his dream, with all that before him which he had thought was behind him. My father looked as stunned and still and as close to madness as that, and his encircling arm began to hurt me, but I did not complain. I put my hand on his face, and he turned to me, his face changed, he smiled—he was very beautiful then!—and he put his great hand on top of mine.
+
+
+A truer scene  has nevver been wwrittten. Every black dad ever
+
+---
+
+> I didn’t care if the silence never ended; I didn’t care if the room remained empty of people forever. I stretched my legs. They did not feel like mine, they had no weight at all. I felt a great peacefulness—such as I had never felt before. I turned my shell of a body into the white sheets and closed my eyes.
+
+
+Dude just got free
+
+---
+
+> And I knew that I had felt this, in some way, all my life. But I had buried it; and made a point, certainly, of never being helpless. But if I had always felt this, then, certainly, I must have shown it, and shown it most, perhaps, when I was least aware of it. My body, after all—I told myself—was no more vile than others; my stink was not original, it had no greater resonance; the rats and the worms would find me as tasty as another. “Ah, Leo,” I said, “what a child you are.” This reflection did not mitigate my distress. The nurse came back. She picked up the bottle. There was no help for it. I said, “Nurse, I have to go to the bathroom.” She said, “I can’t let you move. Wait just a moment.” Then she smiled a real smile. “I know it’s awful. But please don’t let it worry you. Please don’t.” She disappeared, then returned with the grim utensil. Her words hardly helped and yet I guess they helped a little. Anyway, we were still friends when it was over. I lay back. I wondered why humiliation seemed, after all, at bottom, to be my natural condition.
+
+
+The mysticism just keeps on coming
+
+
+---
+
+we were, as Pirandello puts it, in the process of living our play and playing our lives.
+
+
+!
+
+---
+
+
+> She said, “My dear Miss King, you haven’t introduced us to your silent, hungry, and very attractive friend.” Whereas, before, she had looked very steadily at Barbara in order to avoid looking at me, she now looked very steadily at me in order to avoid looking at Barbara. “So I will introduce myself. Lola San-Marquand is my name and this is my husband, Saul.” She extended her hand and I carefully wiped mine on my napkin before taking it. We shook hands. I liked her at once. I liked her enormously. I do not know what it was in her which made me feel, immediately, and with great force, that she was a sad woman, a lost and ruined woman, and, even, a gallant one. Her details were preposterous, but I read these details as the very signal of her bewilderment and sorrow. She was enormous, not fat in a hard way, fat in a soft way: one felt that she had become fat out of despair. Yet, she covered this despair with a stylish, loose, black sack. Her hair, which was very beautiful, very blond, and very long, was severely, impeccably even, perhaps masochistically, pulled back from a rather stunning brow and ferociously knotted at the back of her head. And over this glory she wore a black chiffon scarf, knotted beneath her—chins, perhaps accuracy compels me to say, but the original chin was a firm one. This was the uniform of Lola San-Marquand. I never knew her to dress in any other way. She must have had hundreds of black dresses and scarves—though, in fact, a black and impetuous toque sometimes did duty for the scarf. This, however, was mainly on opening nights. She impressed me—she impresses me still—as one of the most curious, most loving, devious, ruthless, and single-minded people I have met in all my life. She was brilliantly and brutally manufactured: she had not grown into her present shape, but had been hammered into it, or perhaps, as in some unspeakable vat, been lowered. Her hands were white and pudgy and soft. Yet, they were not without power, and the fingers were elegant. One felt that the pudginess of the hands was no more inevitable than the rings they bore—rather awful rings; that, trapped within Lola San-Marquand, was a beautiful, dying girl. But, alas, fatally, overwhelmingly at last, one became aware of the odor of that corruption.
+
+What an incredile character intro
+
+
+
+---
+
+> “And what,” he asked me, “do you consider your qualifications to be?” I said, “I think you’re looking at them.” Then I smiled. “I need another drink. But I’m sure you realize already that I can’t be as definite as Miss King because of the great difference in our backgrounds.” “My,” said Lola, mildly, “you are young. But spirit you have.” “That’s how darkies were born,” I said, and walked back to the whiskey bottle. I was bitter, I was twisted out of shape with rage; and I raged at myself for being enraged. I dropped ice recklessly into my glass, recklessly poured Scotch over the rocks, took too large and swift a swallow, and, trying to bring myself to some reasonable, fixed place, to turn off the motor which was running away with me,
+
+
+Microaggression triggered
+
+---
+
+> I lit a cigarette and turned my back on the company to stare out of the window. I knew that I was being childish, and, in the eyes of the company, perhaps definitely and inexcusably rude; but I could not trust myself, for that moment, to encounter a human eye or respond to a human voice. It did not help, and it could not have, to recognize that I really did not know—assuming that I aspired to walk in the light of clarity and honor—what had triggered this rage. I refused to believe that it could truly have been Saul San-Marquand: how could it have been if it was really true that I held him in such low esteem? But the measure of my esteem had, fatally, to reveal itself in the quantity of my indifference—which quantity was small and shameful indeed. Here I stood at the Manhattan window, seething—to no purpose whatever, which was bad enough: but it was worse to be forced to ask myself, abjectly, now, for my reasons and find that I did not have any. Or, which, really, I think, caused the cup of my humiliation to overflow, to find that I had no reasons which my reason—by which, of course, I also mean that esteem in which I hoped to earn the right to hold myself—did not immediately and contemptuously reject. I was not—was I?—stupidly and servilely to do the world’s dirty work for it and permit its tangled, blind, and merciless reaction to the fact of my color also to become my own. How could I hope for, how could I deserve, my liberation, if I became my own jailer and myself turned the key which locked the mighty doors? But my rage was there, it was there, it pretended to sleep but it never slept, the merest touch of a feather was enough to bring it howling, roaring out. It had no sight, no measure, no precision, and no justice: and it was my master still. I drank my Scotch, I stared at the stars, I watched the park, which, in the darkness, was made shapeless and grandiose, which spoke of peace and space and cooling, healing water—which seemed to speak of possibilities for the bruised, despairing spirit which might remain forever, for me, far away, a dark dream veiled in darkness. A faint breeze struck, but did not cool my Ethiopian brow. Ethiopia’s hands: to what god indeed, out of this despairing place, was I to stretch these hands? But I also felt, incorrigible, hoping to be reconciled, and yet unable to accept the terms of any conceivable reconciliation, that any god daring to presume that I would stretch out my hands to him would be struck by these hands with all my puny, despairing power; would be forced to confront, in these, my hands, the monstrous blood-guiltiness of God. No. I had had quite enough of God—more than enough, more than enough, the horror filled my nostrils, I gagged on the blood-drenched name; and yet was forced to see that this horror, precisely, accomplished His reality and undid my unbelief. I was beginning to apprehend the unutterable dimensions of the universal trap. I was human, too. And my race was revealed as my pain—my pain—and my rage could have no reason, nor submit to my domination, until my pain was assessed; until my pain became invested with a coherence and an authority which only I, alone, could provide. And this possibility, the possibility of creating my language out of my pain, of using my pain to create myself, while cruelly locked in the depths of me, like the beginning of life and the beginning of death, yet seemed, for an instant, to be on the very tip of my tongue. My pain was the horse that I must learn to ride. I flicked my cigarette out of the window and watched it drop and die. I thought of throwing myself after it. I was no rider and pain was no horse.
+
+
+I love these tirades such flow and tumbling power. rapids even.
+
+---
+
+> Her elegance was swinging and it was also archaic; perhaps elegance is always archaic.
+
+<3
+
+---
+
+> Your understudy is still going through his all-white-men-to-the-sword-and-all-white-women-to-my-bed bullshit—
+
+
+What a phrase
+
+--- 
+
+> people turn to each other in the hope of being created by each other then it is absolutely true that the uncreated young turn, to be created, toward their elders.
+
+
+Yes! We create each other !
+
+---
+
+> There is a truth in the theater and there is a truth in life—they meet, but they are not the same, for life, God help us, is the truth. And those disguises which an artist wears are his means, not of fleeing from the truth, but of attempting to approach it.
+
+
+Facts
+
+---
+
+> shoveling away the snow downtown—I never saw any snow being shoveled away in Harlem!
+
+
+Never Thought about that disparity
+
+---
+
+> You ain’t sleepy yet?” he might ask, and I would shake my head, No. “Well, little brother,” he would say, with a yawn, “I am, and you better be.” Then he would rub his hand over my head, a trick of our father’s, and say, “Goodnight, little Leo.” Then he would turn on his side, saying, “Snuggle up tight, now. You all right?” I put one arm around him and nodded my chin against his back, and we fell asleep.
+
+
+Ugh. Something baaaaad is happening in oz...
 
 ## Section 2
 
