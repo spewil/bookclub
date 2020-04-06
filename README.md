@@ -184,10 +184,6 @@ Toxic Masculinity Defined
 
 ---
 
-
-
----
-
 > Then it occurred to me that he might be in the same trouble as myself, since if I couldn’t go home without him, he, even more surely, couldn’t go home without me. Perhaps he was also wandering around in the rain. If he was, then, I thought, it served him right; it would serve him right if he caught pneumonia and died; and I dwelt pleasantly on this possibility for the length of the block. But at the end of the block I realized that he was probably not wandering around in the rain—I was; and I, too, might catch pneumonia and die.
 
 What a mystic
@@ -251,7 +247,7 @@ The mysticism just keeps on coming
 
 ---
 
-we were, as Pirandello puts it, in the process of living our play and playing our lives.
+> we were, as Pirandello puts it, in the process of living our play and playing our lives.
 
 
 !
