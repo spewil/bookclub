@@ -228,7 +228,7 @@ WOowow
 > “We got stopped by the cops,” I said. Then I could not continue. I looked helplessly at Caleb and Caleb told the story. As Caleb spoke, I watched my father’s face. I don’t know how to describe what I saw. I felt the one arm he had around me tighten, tighten; his lips became bitter and his eyes grew dull. It was as though, after indescribable, nearly mortal effort, after grim years of fasting and prayer, after the loss of all he had, and after having been promised by the Almighty that he had paid the price and no more would be demanded of his soul, which was harbored now; it was as though in the midst of his joyful feasting and dancing, crowned and robed, a messenger arrived to tell him that a great error had been made, and that it was all to be done again. Before his eyes, then, the banquet and the banquet wines and the banquet guests departed, the robe and crown were lifted, and he was alone then, frozen out of his dream, with all that before him which he had thought was behind him. My father looked as stunned and still and as close to madness as that, and his encircling arm began to hurt me, but I did not complain. I put my hand on his face, and he turned to me, his face changed, he smiled—he was very beautiful then!—and he put his great hand on top of mine.
 
 
-A truer scene  has nevver been wwrittten. Every black dad ever
+A truer scene  has never been written. Every black dad ever
 
 ---
 
@@ -273,7 +273,7 @@ Microaggression triggered
 > I lit a cigarette and turned my back on the company to stare out of the window. I knew that I was being childish, and, in the eyes of the company, perhaps definitely and inexcusably rude; but I could not trust myself, for that moment, to encounter a human eye or respond to a human voice. It did not help, and it could not have, to recognize that I really did not know—assuming that I aspired to walk in the light of clarity and honor—what had triggered this rage. I refused to believe that it could truly have been Saul San-Marquand: how could it have been if it was really true that I held him in such low esteem? But the measure of my esteem had, fatally, to reveal itself in the quantity of my indifference—which quantity was small and shameful indeed. Here I stood at the Manhattan window, seething—to no purpose whatever, which was bad enough: but it was worse to be forced to ask myself, abjectly, now, for my reasons and find that I did not have any. Or, which, really, I think, caused the cup of my humiliation to overflow, to find that I had no reasons which my reason—by which, of course, I also mean that esteem in which I hoped to earn the right to hold myself—did not immediately and contemptuously reject. I was not—was I?—stupidly and servilely to do the world’s dirty work for it and permit its tangled, blind, and merciless reaction to the fact of my color also to become my own. How could I hope for, how could I deserve, my liberation, if I became my own jailer and myself turned the key which locked the mighty doors? But my rage was there, it was there, it pretended to sleep but it never slept, the merest touch of a feather was enough to bring it howling, roaring out. It had no sight, no measure, no precision, and no justice: and it was my master still. I drank my Scotch, I stared at the stars, I watched the park, which, in the darkness, was made shapeless and grandiose, which spoke of peace and space and cooling, healing water—which seemed to speak of possibilities for the bruised, despairing spirit which might remain forever, for me, far away, a dark dream veiled in darkness. A faint breeze struck, but did not cool my Ethiopian brow. Ethiopia’s hands: to what god indeed, out of this despairing place, was I to stretch these hands? But I also felt, incorrigible, hoping to be reconciled, and yet unable to accept the terms of any conceivable reconciliation, that any god daring to presume that I would stretch out my hands to him would be struck by these hands with all my puny, despairing power; would be forced to confront, in these, my hands, the monstrous blood-guiltiness of God. No. I had had quite enough of God—more than enough, more than enough, the horror filled my nostrils, I gagged on the blood-drenched name; and yet was forced to see that this horror, precisely, accomplished His reality and undid my unbelief. I was beginning to apprehend the unutterable dimensions of the universal trap. I was human, too. And my race was revealed as my pain—my pain—and my rage could have no reason, nor submit to my domination, until my pain was assessed; until my pain became invested with a coherence and an authority which only I, alone, could provide. And this possibility, the possibility of creating my language out of my pain, of using my pain to create myself, while cruelly locked in the depths of me, like the beginning of life and the beginning of death, yet seemed, for an instant, to be on the very tip of my tongue. My pain was the horse that I must learn to ride. I flicked my cigarette out of the window and watched it drop and die. I thought of throwing myself after it. I was no rider and pain was no horse.
 
 
-I love these tirades such flow and tumbling power. rapids even.
+I love these tirades. such flow and tumbling power; rapids even.
 
 ---
 
@@ -473,7 +473,7 @@ Wow. Sharp
 > It was early July, and the sun was a busy and persistent sun. I had turned darker, with a lot of red in my skin and hair; while Barbara had turned mulatto and her hair had turned blond on her forehead and on the curly sides and edges. Jerry was browner than Arabs, and we called ourselves, when we journeyed through town, “the Negro color problem.” We were just outside a small town on a bluff above a river. The Indian Magua, in The Last of the Mohicans, had forced the British maiden, for whom honor was more important than life, over this bluff, into this river—so, at least, Fenimore Cooper and his Hollywood descendants had informed me; it was not hard to imagine Indian braves catapulting down this river, and one heard the fury of their arrows through the leaves of trees. In the hope of catching some whisper of the past, we sometimes wandered through the graveyard in town—a dreadful town, built and ruined by financiers, but saved by a war. Though the graveyard failed to give us any sense of our past, the town gave us all too vivid a sense of our actual condition. The town had been moribund a long time, but factories and government contracts and army installations and eventually soldiers with their pay came to the town and saved it. The people in the town were, therefore, happily making money and the nature and the degree of their happiness made them haltingly friendly and quickly cruel. Although it was recognized that our presence in the town conferred on the town a peculiar prestige and was even good for business, we certainly were not liked. The San-Marquands had rented a big, white wooden house in town, and it was a tremendous sign of status to be invited to one of their parties. It was suspected that the San-Marquands were Jewish, and people said terrible things about them behind their backs; but, on the other hand, they were friends with the stars of stage and screen, and some of these stars would, in fact, be appearing under the Workshop banner. The gentry came to the San-Marquand parties, dazzled, supercilious, and drunk; and we, the Workshop kids, who were often there, serving canapés and drinks, sometimes picked up an odd job or two—or vice versa; but, whatever the use they might occasionally make of us, the combination of our youth and our aims was distressingly and sharply distasteful to them. Everyone was certain that the San-Marquands were exotically, unimaginably, erotically corrupt, and so were the movie stars, their friends. They had gotten away with it, and, thus, were obviously a bad example for us; obviously, kids in such fast company were bound to be depraved. They did not want to know why, when we could have been doing other things, we painted signs and mowed lawns and posed naked. They disliked Jerry because he was Italian, they disliked Barbara because she was not, and, therefore, had no excuse, and they disliked me because I did not appear to realize that both Barbara and Jerry were white. I did not, in fact, appear to know that I was colored and this filled them with such a baleful exasperation, such an exasperated wonder, that the waitress’ hand, when I stopped in the diner, actually trembled as she poured my coffee, and people moved away from me, staring as though I were possessed by evil spirits. Naturally, I despised them. They didn’t even have the courage of their sick convictions, for, if they had, they would have tarred me and feathered me and ridden me out of town. But they didn’t dare do this because of my connection with the Workshop. Naturally, they brought out the worst in all three of us. Their minds were like dirty windowpanes; and so we obligingly acted out their fantasies for them. When Jerry and I walked through town together, for example, everyone assumed we were queer—there couldn’t be any other reason for our walking together; and so we sometimes walked with our arms around each other. If Jerry had not been so big and I had not been so bold, we would have paid—more often than we did—a bloody price for this. But Jerry’s size intimidated and bewildered them—he certainly didn’t act queer—and so did my boldness, which seemed to contradict my color; on the whole, we were rather too queer to be easily molested. Of course, when Barbara and Jerry walked through town, Barbara had only to put her head on Jerry’s shoulder for them both to become, at once, a pair of lewd and abandoned lovers; while for the three of us, walking together and holding hands, they had no words at all. Nevertheless, they endured us because the San-Marquands gave parties at which they might meet movie stars.
 
 
-Thi whole setion is fucking delicious
+This whole section is fucking delicious
 
 
 ---
@@ -536,7 +536,7 @@ Oof
 > Their house was always full of people, and Rags Roland was spending the summer with them. Rags was very impressive; big, and so ugly that she was positively splendid. In fact, a woman who looked like Rags had scarcely any choice but to become splendid if she were to achieve any bearable human quality at all. She was bigger than most men, with a face as square and as expressive as a block of granite—a block of granite veined with fine red lines. She had been given, in belated and incongruous compensation, a great deal of very bright, curling hair which was red by the time I met her. She wore it as though it were a helmet, not, I must say, that she could have worn it in any other way. Her clothes all seemed, on her, to be made of metal—relentless two-piece tweed suits, sometimes somber but sometimes startlingly plaid, which gave way, come summer, to equally relentless, sacklike prints. They boomed like trumpets, they hurt the eye. She was incredibly energetic, one of the people whose relentless good-nature at length becomes rather frightening. She was always smoking and joking; one wondered if she could ever be still. She had told me once, sitting on the San-Marquand porch, in a large, ornate double swing made of South American straw, that she could not get through a single day without listening to music. I wondered when. I wondered how she could ever turn off all the noise she lived with long enough to hear anything: I should have thought that her spiritual eardrums had long ago been broken. But photographs of herself and the San-Marquands, taken years before when they had just begun the Workshop, showed another Rags, a Rags unreconciled. These photographs were on the walls of The Green Barn office, and in Saul’s study at home. The photographs showed them sitting around under trees, reading scripts, or in rehearsal. Saul looked very different, his hair had not been white then; in one of the photographs he was without his glasses and he looked like a startled boy. Lola had been round but not shapeless, her hair had been long, and her face very earnest and girlish. And Rags—Rags had worn her hair very long then, and braided into a crown. The big face, the big mouth, the great square mass of her, seemed, somehow, vulnerable. And she was wearing something which looked gray in the photographs, long and soft and full. She had been trying to be an actress in those days, and she wrote poetry. “Wretched poetry,” she said, “but I’ve never had the heart to burn it. It’ll turn up in my private papers after I’m dead. Don’t let the world laugh at me too much.” This was when she was drunk, at one of the San-Marquand parties.
 
 
-Love this. The metallic stuff is brill. There are skme extraneous bits  tho
+Love this. The metallic stuff is brill. There are some extraneous bits tho.
 
 
 ---
@@ -560,7 +560,7 @@ Love it  life class is pretty depressing
 > Salvatore treated Jerry like a son; and this brought forward the man in Jerry. It brought forward in him elements of delicacy and courtesy which Jerry, in most of his daily life, disguised by rough speech and rough play. The lost and loving boy Jerry was attempting—helplessly—to divorce and deny was the only creature Salvatore saw, and it did not even occur to him to doubt the value of this creature. Salvatore could not know it, but he thus reached directly into the heart of Jerry’s loneliness, and also foreshadowed his hard and lonely life.
 
 
-All most of us want is to be seen. To have our inner chikd validated
+All most of us want is to be seen. To have our inner child validated
 
 
 ---
@@ -647,7 +647,7 @@ Fam... What a twist.
 > I have crossed many a frontier since then, have had my passport stamped, say, at the French-Swiss border, at the Swiss-Italian border; and I am beginning to believe that a landscape is not a landscape at all, merely a reflection of the sensibility of the people who live in it—certainly this is what one is watching as one crosses their forests and plains, vineyards and mountains, cities, tunnels, towns. French towns are mostly hideous, all French trees are mercilessly cropped, with a view, presumably, to the landscape, the larger vision—in the way French poodles operate as accessories to the wardrobes of their owners. There is absolutely no nonsense about it, whatever does not fit in is out, down to the merest flickering flower, the puniest, struggling branch. I suppose the French impose such a violent topographical order in order to compensate for an extreme untidiness, indeed, disorder, which the nature of their history—their passion—does not allow them to attack in any other way. The man at the frontier has cigarette ashes all up and down his uniform, and a cigarette is established between his lips. He has not the remotest interest in the voyager, or his passport: he forces himself to squint at both. Sometimes he looks at the baggage, sometimes not. Sometimes he stamps the passport; sometimes one has to ask him to stamp it. His office, were it not in France, would remind one of nothing so much as a cell in purgatory; and he and confreres seem to feel that they are serving a sentence which they probably, after all, deserve. Within seconds, the time it takes to cross a small backyard, one has left this outpost, the last witness to this indisputably dour and extraordinarily interesting people, and one is facing the apple-faced Swiss. Their quarters are impeccable, as are their uniforms. The Swiss do not smoke their cigarettes, but leave them quietly burning in one of their millions of ashtrays. Their uniforms are ironed every morning and laundered every night; and the man within the uniform would find himself in something much worse than purgatory if he were not laundered and ironed, too. He examines everything very carefully, passport, luggage, voyager; causes one to think of the dirty socks and shorts in one’s baggage, one’s filthy armpits, and abruptly active intestines; is unspeakably polite, as patient as a ferret, as distrustful as a thief; and when one has escaped the Swiss correctness, one feels that one is being pursued—they are hoping to delude you into leading them to your accomplice. And then, abruptly, one is at the Italian frontier. They seem extremely surprised, but, on the whole, delighted, that you decided to drop by. Between extravagant offers of extravagant dinners, and impassioned questions as to what drove you from your part of the world, they are perfectly willing to glance at your passport and stamp it on any random page. They swear eternal brotherhood, and so you pass out of their offices and out of their lives. The French landscape is cerebral, this being the form that the French passion deludes itself into taking. The Swiss landscape is ordered, nothing could be more remote from passion—people who cannot make love make money—and it is designed to advertise one of the most flagrantly fraudulent Edens in our unhappy history. The Italian landscape is ragged, wild, unpredictable, like the landscape of Spain, the landscape of Africa. And something in me answers to such a landscape. Something in me is caught and held and solaced. I am profoundly repelled by the smug angularities of northern Europe, the cold sky and the spiteful lips of New England. A day may come, but not for me, when the American South will be habitable. Till then—well, I am wandering. But I was about to say that, however dramatic the frontiers I have mentioned, the most dramatic, the most appalling, remains that invisible frontier which divides American towns, white from black.
 
 
-JUst brilliant. Randokm and briklliant
+Just brilliant. Random and brilliant
 
 
 ---
@@ -859,7 +859,7 @@ Damn . Trauma ejected him into the streets
 > Or, it may have been this night, or a night very soon thereafter, that I was picked up by a Harlem racketeer named Johnnie, big, Spanish-looking, very sharp, and very good-natured—good-natured with me, anyway—who took me home and gave me my first drink of brandy, and took me to bed. He frightened me, or his vehemence, once the lights were out, frightened me, and I didn’t like it, but I liked him. I had to keep him from buying things for me which I couldn’t take home; he was an even greater protection than Francis, and it took me a long time to break with him, simply because he was fond of me—he was often the only person to whom I could turn. Eventually, Johnnie and another pimp tangled, and Johnnie was killed.
 
 
-Fam. Wasnt redy for this turn
+Fam. Wasnt ready for this turn
 
 
 ---
@@ -880,7 +880,7 @@ Damn. Arrested for a joke
 > We stared at each other—if I had allowed myself to drop my eyes, I would have fallen to the floor.
 
 
-This knife eedge is so real
+This knife edge is so real
 
 
 ---
@@ -912,7 +912,7 @@ I def have had this experience today
 > Wow. I wish it had been me. The police chief of this town would be looking for a job.” She looked around at us, and gave a little laugh. “I mean it. After all, I’m an heiress. I don’t always like being an heiress, but that doesn’t mean that I’m not prepared to use it.”
 
 
-Yes! Leveergae that privilege
+Yes! leverage that privilege
 
 
 ---
@@ -933,9 +933,9 @@ A sentence
 > We really had no choice. I had to warm my girl, my freezing girl. I covered her with my body, and I took off her robe. I covered her, I covered her, she held me, and I entered her. And we rejoiced.
 
 
-Wow. Betrayyd  by his dick indeed
+Wow. Betrayed  by his dick indeed
 
-
+    
 ---
 
 > “A person can’t just decide to be great, Barbara.” “Some persons can. Some persons must.” “You think I’m one of those persons?” “I know you are. I’ve always known it.” She paused. “That’s how I know, you see—that you don’t belong to me.” She smiled. “But let’s be to each other what we can.”
@@ -1148,7 +1148,7 @@ Such an apt description
 > My body had been functioning all those weeks I’d been in bed, and, abruptly, seriously, I was terribly horny. I shifted a little bit away from her, more astonished than embarrassed. This particular aspect of Lazarus’ return had not before occurred to me: but it certainly made sense. To come up from the place where one thought one was dead means that one becomes greedy for life, and life is many things, but it is, above all, the touch of another. The touch of another: no matter how transient, at no matter what price.
 
 
-Wow new magical clarity about lazarus ressurection
+Wow new magical clarity about lazarus resurrection 
 
 
 ---
@@ -1208,7 +1208,7 @@ Family  story Of the first white partner. My brother is leo
 > people won’t see what they can’t afford to see.
 
 
-Quot of the chapter
+Quote of the chapter
 
 
 ---
@@ -1247,7 +1247,7 @@ Who is he telling?
 > I did not refuse to join the Army, but outwitted it by a particular species of ruthless cunning. I was—I say now—prepared to go to jail. The Japanese had already been interned. I was not going to fight for the people who had interned them, who had also destroyed the Indians, who were in the process of destroying everyone I loved: I was not going to defend my murderers. Yet, when my moment came, I did not say any of that. I arrived at the Harlem draft-board with several books under my arm. I deliberately arrived a little late. I pretended that I had just come from the library. I said that I was the only support of my aging parents, and, in fact, I had had the foresight to be working in a shipyard, foresight or luck, it’s hard to say now, I’ve held so many jobs for so many reasons. Anyway, I think I gave a great performance before my draft-board. It was composed, as I knew it would be, of round, brown, respectable old men who had long ago given up any hope of being surprised. Round, brown, respectable old men, whose only real desire, insofar as they still dared desire, was to be white. I knew that, and with my books under my arm, with one brother already in the Army, with two aging people at home, with my impeccable shipyard job, with my flaming youth, and what I could not then have named as a deadly single-mindedness—and using precisely the fact that I was physically improbable—persuaded these round, brown, respectable old men that my potential value to my race—to them; my very improbability contained their hope of power, and I knew that—was infinitely more important than my, after all, trivial value to my country. And they deferred me. I had known that they would: that if I pressed the right buttons, they would have no choice but to defer me. And they checked up on me from time to time, but they never bothered me. I had surprised them, and they were grateful, although some of them grew to hate me later, when they suspected how they had goofed.
 
 
-I love this stoey
+I love this story
 
 
 ---
@@ -1276,7 +1276,7 @@ Wtf does this mean?
 > Of all the fears there are, perhaps the fear of physical pain and destruction is the most devastating. For I had to admit to myself that I was simply, ignobly, and abjectly afraid. I didn’t like the taste of my own blood. I didn’t want all my teeth knocked out, didn’t want my nose smashed, my eyes blinded, didn’t want my skull caved in. To drive to town, to walk about, to get through a single day, demanded at least as much energy as would have been demanded for a fifteen-round fight. More: for a fifteen-round fight supposed a winner and a loser, supposed a resolution, and, hence, a release. But there was no release for me, and especially not where it should most certainly have been found, in Barbara’s arms, in bed. Fear and love cannot long remain in the same bed together. And how many nights I lay there, while Barbara slept, filled with an indescribable bewilderment; feeling that all that held me to life was being gnawed away, and feeling myself sink, like a weighted corpse, deeper and deeper in the sea of uncertainty. It’s hard, after all, for a boy to find out who he is, or what he wants, if he is always afraid and always acting, and especially when this fear invades his most private life. Barbara and I were marooned, alone with our love, and we were discovering that love was not enough—alone, we were doomed. We had only each other, and this fact menaced our relation to each other. We had no relief, we had no one to talk to—far behind us were the days when we had played at being lovers, and laughed at how easily the world was shocked.
 
 
-Gold golld gold. Fears, relAtionship, love. WOw
+Gold gold gold. Fears, relationship, love. Wow
 
 
 ---
@@ -1308,7 +1308,7 @@ SOo fucking good
 > “And I know you’ve been practicing the guitar. And there are places in the Village where you could start out. Oh, you know, there’s that West Indian restaurant. I bet they’d be glad to have you start out there.” “If they want people to sing West Indian songs, why would they come to me? I’m not West Indian.” “Oh, Leo, you are too. You’re part West Indian. You’re just putting up objections so I can knock them down. I know you. It’s a damn good idea, and you know it.” I had thought about it before; I began to think about it again. “Maybe.”
 
 
-Denial of culture untikl it's helpful
+Denial of culture until it's helpful. such an immigrant / marginalized person story.
 
 
 ---
@@ -1448,7 +1448,7 @@ White soap black sugar
 > I knew—or I felt—that people were beginning to give me up. They felt, I was sure, that I was destined, simply, to become a part of the wreckage which lines every steep road. And,
 
 
-Quoge
+Quote
 
 
 ---
@@ -1514,7 +1514,7 @@ I am beginning to know this feeling
 > Pete left very soon after dinner, and Barbara and I sat before the fire, as calm, I thought suddenly, almost, as two old people.
 
 
-Omg thw tie hopping . Now im dizzy for te first tim
+Omg the time hopping. Now im dizzy for the first time
 
 
 ---
@@ -1530,7 +1530,7 @@ Like mother like son
 > During all these years, Barbara and I had seen each other with many people, always slightly envying and slightly pitying whoever was with the other.
 
 
-Poly amory at its finest
+Polyamory at its finest
 
 
 ---
